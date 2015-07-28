@@ -39,11 +39,9 @@ In Phase 1 we said we would attract 10 individuals to the project - in fact we h
 
 ### Phase 2  May 2015 - July 2015
 
-Individuals gain IT access 
+By the end of phase two we said we would have 23 individuals enrolled on the project - we have 24 individuals enrolled.  We had said we would start to help 7 individuals improve their computing skills in this phase - we reached that target in phase 1 and have continued to work with those individuals.
 
-Individuals improve IT skills 
-
-Review of milestones
+With our partners in the Citizens Advice Bureau we have identified a need for both ESOL and adult basic education training, alongside IT support and training.  Highlife Highland have offered to supply a tutor on Fridays to help and we will actively refer individuals attending our project.  Highlife Highland have currently agreed to supply an individual to deliver this training over an 8 week period after which it will be reviewed.   
 
 ### Phase 3  Aug 2015 - Oct 2015
 
